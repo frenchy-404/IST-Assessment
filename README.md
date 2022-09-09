@@ -23,6 +23,6 @@ I have a number of experiences in music, including some group work and group per
 
 ## Other Songs (not performed)
 
- - ***Paranoid - Black Sabbath***
- - ***Master of Puppets - Metallica***
- - ***YYZ - Rush***
+ - ***Paranoid - Black Sabbath - Electric Guitar***
+ - ***Master of Puppets - Metallica - Electric Guitar***
+ - ***YYZ - Rush - Bass Guitar***
