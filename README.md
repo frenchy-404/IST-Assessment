@@ -10,13 +10,13 @@ I'm a 16 year old music student from the Central Coast in Australia. My areas of
 
 I have a number of experiences in music, including some group work and group performances.
 
-##### - Fly Me to the Moon - Group Performance Task - Bass Guitar
-##### - Come Together - Group Performace Task - Bass Guitar
-##### - Come As You Are - Group Performace Task - Bass Guitar
-##### - Mamma Mia - Live Caberet Night - Bass Guitar
-##### - Fly Me to the Moon - Live Caberet Night - Bass Guitar
+ - ***Fly Me to the Moon - Group Performance Task - Bass Guitar***
+ - ***Come Together - Group Performace Task - Bass Guitar***
+ - ***Come As You Are - Group Performace Task - Bass Guitar***
+ - ***Mamma Mia - Live Caberet Night - Bass Guitar***
+ - ***Fly Me to the Moon - Live Caberet Night - Bass Guitar***
 
 ### Upcoming Performances
 
-##### - Back in Black - Live "Rooftop Concert" Performance - Electric Guitar
-##### - Enter Sandman - Live "Rooftop Convert" Performance - Electric Guitar
+ - ***Back in Black - Live "Rooftop Concert" Performance - Electric Guitar***
+ - ***Enter Sandman - Live "Rooftop Convert" Performance - Electric Guitar***
