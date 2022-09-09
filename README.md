@@ -25,4 +25,6 @@ I have a number of experiences in music, including some group work and group per
 
  - ***Paranoid - Black Sabbath - Electric Guitar***
  - ***Master of Puppets - Metallica - Electric Guitar***
+ - ***Creeping Death - Metallica - Electric Guitar***
+ - ***For Whom the Bell Tolls - Metallica - Bass Gutiar***
  - ***YYZ - Rush - Bass Guitar***
