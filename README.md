@@ -21,7 +21,7 @@ I have a number of experiences in music, including some group work and group per
  - ***Back in Black - Live "Rooftop Concert" Performance - Electric Guitar***
  - ***Enter Sandman - Live "Rooftop Convert" Performance - Electric Guitar***
 
-## Other Songs
+## Other Songs (not performed)
 
  - ***Paranoid - Black Sabbath***
  - ***Master of Puppets - Metallica***
