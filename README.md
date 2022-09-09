@@ -28,3 +28,5 @@ I have a number of experiences in music, including some group work and group per
  - ***Creeping Death - Metallica - Electric Guitar***
  - ***For Whom the Bell Tolls - Metallica - Bass Gutiar***
  - ***YYZ - Rush - Bass Guitar***
+
+Campbell Reid 2022
