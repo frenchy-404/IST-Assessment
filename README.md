@@ -14,7 +14,7 @@ I have a number of experiences in music, including some group work and group per
  - ***Come Together - Group Performace Task - Bass Guitar***
  - ***Come As You Are - Group Performace Task - Bass Guitar***
  - ***Mamma Mia - Live Caberet Night - Bass Guitar***
- - ***Fly Me to the Moon - Live Caberet Night - Bass Guitar***
+ - ***Fly Me to the Moon - Live Caberet Night - Bass Guitar*** - *https://imgur.com/a/ESYYY5z*
 
 ### Upcoming Performances
 
@@ -23,8 +23,8 @@ I have a number of experiences in music, including some group work and group per
 
 ## Other Songs (not performed)
 
- - ***Paranoid - Black Sabbath - Electric Guitar***
- - ***Master of Puppets - Metallica - Electric Guitar***
+ - ***Paranoid - Black Sabbath - Electric Guitar*** - *https://imgur.com/a/ZQDfnIu*
+ - ***Master of Puppets - Metallica - Electric Guitar*** - *https://imgur.com/a/sWkHUzT (snippet)*
  - ***Creeping Death - Metallica - Electric Guitar***
  - ***For Whom the Bell Tolls - Metallica - Bass Gutiar***
  - ***YYZ - Rush - Bass Guitar***
